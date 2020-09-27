@@ -8,7 +8,6 @@ _죽었던 왕이 되살아나고
 반역자로 몰린 왕세자가 향한 조선의 끝,  
 그곳에서 굶주림 끝에 괴물이 되어버린 이들의 비밀을 파헤친다._  
 
-
 ![킹덤](https://lh3.googleusercontent.com/proxy/shOf_noczNp6Mb_D36EdNwuGUmx8mj80YUVQlY_CLUT2nHdSxZfWi6FuUJIm0mpjN4KO960fOI1ALSUOMBoQcp5ddjjSJNfTY-XI7MjEqp2R_9vdQqoAWM4)  
 
     
